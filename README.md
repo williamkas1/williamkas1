@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @williamkas1
+- 👀 I’m interested in Gaming.
+- 🌱 I’m currently learning Political stuff.
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me on Discord: @williamkas1
